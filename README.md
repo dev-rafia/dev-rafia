@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @dev-rafia
+- 👀 I’m interested in painting
+- 🌱 I’m currently learning design
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: I can bite
